@@ -50,6 +50,23 @@
 https://www.dst.dk/Site/Dst/Udgivelser/GetPubFile.aspx?id=29445&sid=indv2018 
 </p>
   
+       <p style="font-size:18px"> "Inger støjberg har både brudt loven og løjet over for folketinget i forbindelse med sagen om adskillelse af unge asylpar.":  
+ </p>
+  
+  
+    <p style="font-size:18px"> Ombudsmanden har konkluderet at instruksen om adskillelse af unge asylpar på danske asylcentre var ulovlig, (se fx: http://www.ombudsmanden.dk/find/udtalelser/beretningssager/alle_bsager/2017-10/) og Inger støjberg har selv erkendt at hun har givet 'upræcise' oplysninger til folketinget i forbindelse med sagen (se fx https://jyllands-posten.dk/politik/ECE9673360/stoejberg-erkender-fejl-og-lovbrud-forloebet-kan-kritiseres/).
+     Spørgsmålet om hvorvidt Støjberg intentionelt har løjet over for folketinget er under heftig diskussion. 
+</p>
+  
+  
+    <p style="font-size:18px">  "Igennem den nyere historie har venstreorienterede justitsministre flere gange forsøgt at skjule sager om seksuelle overgreb begået af indvandrere.”: 
+ </p>
+  
+  
+    <p style="font-size:18px"> Dette udsagn er opfundet til lejligheden og har ingen hold i virkeligheden.    
+</p>
+  
+  
   
   
 
